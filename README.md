@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sakshigrathi@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I love to explore everything that excites me**
 
 <p align="left">
 </p>
